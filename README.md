@@ -40,7 +40,7 @@ Currently seeking Business Analyst opportunities where I can apply my analytical
 
 ## 🌐 Connect with Me
 
-(https://www.linkedin.com/in/simran-kaur-strategist)
+https://www.linkedin.com/in/simran-kaur-strategist
 
 ---
 
